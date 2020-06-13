@@ -1,1 +1,1 @@
- https://nethmaperera.github.io/Individual-Project/
+https://nethmaperera.github.io/Individual-Project/
